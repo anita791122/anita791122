@@ -1,6 +1,6 @@
 # Hi, I'm Anita 👋
 
-**UI/UX Designer × Front-End Developer**
+**UI/UX Designer × Web Designer**
 10+ 年跨產業設計經驗 — FinTech・HealthTech・GovTech・eCommerce
 
 ---
